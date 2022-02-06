@@ -1,2 +1,2 @@
-# BaIasicadore.github.io
+# BaIasicadore.github.com
 我幾乎笑死
